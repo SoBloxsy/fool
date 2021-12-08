@@ -1,0 +1,2 @@
+# fool
+prank
